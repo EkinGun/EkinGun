@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @EkinGun
+- 👀 I’m interested in swimming,guitar and tech
+- 📫 How to reach me : nothing yet-_-
